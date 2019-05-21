@@ -1,0 +1,1 @@
+2.4GHz PA MW7IC2725N Altium
